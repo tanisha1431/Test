@@ -7,6 +7,6 @@ This issue is very prominent among the student population and also working profe
 The problem has a tendency to grow and persist in such times where physically meeting people is not something everyone has the luxury to do.
 # Solution 
 ## **_E x a m  B u d d y_** 
-![Uploading Untitled.png…]()
+ # ![Uploading Untitled.png…]()
 
 
