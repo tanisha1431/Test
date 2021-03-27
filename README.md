@@ -7,3 +7,5 @@ This issue is very prominent among the student population and also working profe
 The problem has a tendency to grow and persist in such times where physically meeting people is not something everyone has the luxury to do.
 # Solution 
 ## **_E x a m  B u d d y_** 
+ * ![Untitled](https://user-images.githubusercontent.com/77191424/112718075-a843cc00-8f16-11eb-8570-28205ef581cb.png)
+
